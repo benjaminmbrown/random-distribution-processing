@@ -1,4 +1,4 @@
 # random-distribution-processing
 Random number distribution in processing. 
-![alt tag](http://www.gfycat.com/GargantuanDesertedDutchsmoushond)
+![alt tag](https://zippy.gfycat.com/GargantuanDesertedDutchsmoushond.gif)
 
